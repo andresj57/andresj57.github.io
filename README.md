@@ -8,3 +8,7 @@ Este es un repositorio con el fin de aprendizaje en el cual se busca fortalecer 
 
 Cada vez que nos esforzamos por aprender m&aacute;s, vamos hacer mejores porque vamos a tener la capacidad de poder a ayudar 
 a las personas, y recuerda el que sabe de todo no se vara por nada.
+
+Debemos poner en practica lo mas que se pueda no te dejes llevar por la pereza y entre recuerda que entre mas ense&nacute;es mas aprendes.
+
+Muchas gracias por haber llegado hasta ac&aacute;.
